@@ -1,4 +1,4 @@
-### Hi 👋, 
+### Hie! 👋, 
 
 I'm Dhakshayani Godavarthy
 
